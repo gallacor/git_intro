@@ -1,1 +1,2 @@
 Corey Gallagher
+gallacor@oregonstate.edu
